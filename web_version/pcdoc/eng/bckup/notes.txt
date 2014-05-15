@@ -1,0 +1,48 @@
+;processor failure
+(assert )
+
+;overheating
+(assert (proc_oheat yes)
+(if (neq ?oheat yes) then ;not sure
+		(printout t "Does it seem like the processor is overheating?" crlf)
+		(bind ?oheat (read))
+		(if (eq ?oheat yes) then
+			)
+		)	
+		
+	)
+
+;crashing
+(assert (proc_crash yes))
+
+;incorrect speed
+(assert (proc_speed yes))
+
+;slowdowns
+(assert (proc_slow yes))
+(if (eq ?slowdown yes) then
+		
+		(printout t "Have you recently added more memory to the system?" crlf)
+		(bind ?mem (read))
+		
+		(if (neq ?oheat yes) then ;not sure
+			(printout t "Does it seem like the processor is overheating?" crlf)
+			(bind ?oheat (read))
+			(if (eq ?oheat yes) then
+				(assert (proc_oheat yes))
+			)
+		)	
+		
+		(printout t "Do you notice the hard disk light flickering when you load a lot of programs or does it say memory is low?" crlf)
+		(bind ?flick (read))
+		
+		(assert (sysslowdownproblems (add_mem ?mem)(hd_light_blink ?flick)))
+
+	)
+
+
+
+
+
+
+	

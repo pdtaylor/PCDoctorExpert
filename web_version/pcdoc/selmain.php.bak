@@ -1,0 +1,32 @@
+<FORM name="frmSelComp"  METHOD="POST" ACTION= <?php echo "http://".$_SERVER['SERVER_NAME'].$_SERVER['PHP_SELF']."?pid=".$strScript."&action=".$strAction."&id=".$strID; ?> >
+				
+				<TABLE HEIGHT="280px" width="700">
+					<TR>
+						<TD>Select the component that's giving the problem:</TD>	
+						<TD><select NAME="cboComponent">
+								<option VALUE="">[Select Company]</OPTION>
+								<?php
+									CreateConnection("localhost", "root", "", "pcdoc");
+ 									$Tablename = "tblquestions";
+									$sql = "SELECT DISTINCT qtype FROM ".$Tablename;
+									$result = mysql_query($sql);
+						
+									while($row = mysql_fetch_array($result, MYSQL_NUM))
+									{
+										echo "<option value=".$row[0].">".$row[0]."</option>";
+									}
+									mysql_close(); 
+								?>
+</select></TD>
+					</TR>
+					<TR>
+						<TD colspan=2>Select the component that's giving the problem:</TD>
+					</TR>
+					
+				</TABLE>
+	    </FORM>   
+
+
+<?php
+
+?>
