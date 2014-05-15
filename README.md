@@ -3,7 +3,7 @@ The PC Doctor Expert System is an expert system designed to diagnose the most co
 
 <h3>INSTALLATION INSTRUCTIONS</h3>
 To begin installing the PC Doctor Expert System on your computer, please verify
-that you have the following files on the CD provided:
+that you have downloaded the following files:
 - wamp5_1.3.1 installation file
 - php_clips-0.5.0.dll file
 - CLIPSWin Zip file
