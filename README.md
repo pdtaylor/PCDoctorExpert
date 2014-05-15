@@ -9,7 +9,7 @@ that you have downloaded the following files:
 - CLIPSWin Zip file
 - pcdocbckup20080514.sql file
 - PCDOC folder containing source code files.
-<p>The installation files are stored in the installation_files folder. Once you have verified that you have all five (5) components you can begin.</p>
+<p>The installation files are also provided in the installation_files folder. Once you have verified that you have all five (5) components you can begin.</p>
 
 <h3>Installing WAMP</h3>
 Firstly, install the WAMP server on a computer running Windows by simply
