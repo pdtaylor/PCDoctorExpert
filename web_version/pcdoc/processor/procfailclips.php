@@ -1,1 +1,440 @@
-ÎÌÎÎÎĞĞ§§¹¹§¹¹¹¹§¹§§¹¹¹¹¹¹¹¹¹¹¹§ÎĞĞÎĞÎÎĞÎÎĞÎš¹§¹¹¹¹Ì¹§§`3Ï¡¡}¡È¬¾¢¡šq```¢¢¡r¢È¢¡qæt}3İ‰³Ç¼©Ş©Ï²¶²u²×³¼½¼¼½¤å²Œ¶ØZ¿«İ¼ÍÑ«ÚãÚ³³”ÓŞİÃš§§§¹§§¹¹Ì¹¹¹§§ĞĞÎÎÎÎš»ÎÎÎÎš§§¹¹¹¹¹§¹¹¹§¹§§¹¹§¹§¹§¹§§ÎĞÎĞÎÎĞÌÎÎÎĞ»Îš§§¹§¹§§§Ì¹¹¹¹¹§¹¹¹¹¹Ì§§¹ÎĞßĞĞĞĞĞÎÌĞÎš»§¹§¹§¹¹¹§q3Ët¡zÎ¢È¡¾¡È¡qqq`qq`¢È­¡¢¢¬­}qê}`qêÊ¤ İÑªÉ¶¶²•±²áª¼¼Æªz}Úã¶ØÃ}¢à±¼Íİ®áå¶²å}íè§¹¹¹Ì¹¹§¹§§¹§¹ÌĞÎÎĞÎÎĞÎÌÎ¡§§¹§¹¹¹¹§¹§¹§§¹¹§¹¹§¹§§§§ĞĞĞĞĞĞÌÌÎÎÎÎÎÎš§§¹¹¹¹§¹¹§¹§¹¹¹§¹œ¹¹¹§¹ßßĞÎĞĞÎÎÎĞÎĞÎÎš¹¹¹¹¹¹¹¹™»3Ït¡¡¢¡¬­¬¡qqqq`qq­¢¢¢¢È¢È¢qêtqaí¶ Ï«İæˆãã¶•²¶²áÏ¼½Ï}`°åØãŠ3qàáÏÏÃ}¢åãÚˆ``§Ì¹¹¹¹Ì¹¹¹§¹§ÎßÎĞÌĞĞÎššÌÎÎš§§§¹§¹§¹§¹¹§§§§§¹¹¹§¹§§ÌĞĞĞĞĞÎÎĞÎÎÎÎÎĞÎ§§§§¹§¹¹¹§¹¹¹§¹Ì¹¹¹¹¹¹¹ÎßßĞĞĞĞĞĞĞÎĞÎÎßš§¹¹§Ì¹§§§š3¼Š¡Ÿ¡¾­È¢¡}q¢q¡q¢È¢¢¢¡­¢¾ØÅqq›®ª±ér×ã¶Œ²Ø³Şª¼Í{`3q×åÚMq`á«İ—K`¬ä‹(aš¹§§§Ì¹¹§¹§§§ÌĞĞÎÎĞĞÎÎÎÌÎq™¹¹¹¹¹§§¹§§¹¹¹¹¹§¹§¹§¹§ÌßßÎĞÌÎĞÌĞÎÌĞĞ»§¹§¹¹¹§§¹¹¹§¹¹¹¹¹¹¹¹¹§ĞßßÎĞĞÎÎßĞÎ¡ÎÎĞĞÎ¹¹Ì¹¹¹Ì¹¹q3¼–qÈ¡q¡¡¡¢¢¡qqqÏ¡¡qÈ¢¢¢¢¢È¡}Ç·}3ÇÚŞét®ã¶²¶³°±æ½ŞKq``Óã—q`qq£æ¤qqa`3`Ÿš§¹¹¹§§¹¹§›§§ÌßĞÎĞĞÎ`ÌÎÎÌÌš§§¹¹§¹¹¹¹¹¹§§§§¹§¹§¹¹¹šÌßĞßĞÎÎĞÎĞÎÎÎÎÌĞš§§§¹¹§¹¹§¹¹¹¹¹¹¹¹¹Ì¹¹§ĞÎĞĞÎÎĞĞĞÎÎÎĞÎÎ§¹¹¹¹¹§¹¹š3º—¡È¡ŸÈ¢¡¢z`æ}¡zq¢È¡¢¢¡¢}İv}qÍ.å¶¶ãtqÓ«Şraq`ŸØ‘tqq`qq¡}qqŸqqqƒ§§§¹¹¹¹¹§§§¹§ÌĞĞÎĞĞĞÎÌÎ»ÎÎÌĞĞ§§¹§§¹§§¹§§¹§¹¹¹§¹¹§§¹§ÎßĞÎĞÎĞ»ÎÎÌĞĞšÎĞš§¹§§¹§¹¹¹¹¹§¹§¹¹§¹¹¹¹§ĞßßĞÎßßĞĞÎ»ĞĞÎĞÎ¹§¹¹¹§¹§§`3¼q¡¡¡¢¡¢¢¡qqqê¢ÈqqÈ¢¢¢}È¢¡}æZq`æt/ÀåÙ“K`¡Ó¢qqq¼f`q`qz`q¢È¾z}qq3Ç§§Ì¹¹¹§¹¹§¹§§ÎĞßĞÎ»ÎĞÎĞššÎ§¹§§¹§¹¹¹¹¹¹¹¹¹¹¹§§¹§¹§ÎĞĞĞÎĞĞĞÌÎĞÎÎÎ»§§¹¹§¹¹§¹¹¹§¹¹¹¹¹§Ì§¹§ßßĞĞĞĞĞßÎĞÎÎĞÎÎĞĞÌ§¹§¹§¹¹§3¼}Ğ­¾¢}¢q¢q}ší—}¡È}¡}¢¡¢¢`êtq`êe`/qKqq}`qqqqq¼iqq`}¡­È¢q`q¼š¹¹§¹¹Ì§Ì¹§»§ÎßĞĞßÎÎÎĞÎÎ»Î»»»§¹§¹¹¹§¹¹§¹§¹§¹§§¹§§¹§ÎĞĞÎĞĞĞÎÎÌÎÎÎÎßĞš§§¹¹¹§¹¹§§¹§Ì§Ì¹¹¹¹¹§§ĞĞßĞÎß»ÎĞĞĞĞÎÎĞĞ§§¹¹§§Ì¹¹š3¼tß¡È¢}¡¡¢qqÇã¡¡¢q¡¡¡z¡¡qítKaíi/zqaqqš¢¢¢¡qqqzqqqq¡Ÿ¬¡¢¡qqqÇ§§§Ì¹Ì¹¹¹§¹¹§ÎßĞÎĞÎĞÎÎÎÎ»»§§§¹¹¹§§¹§¹§§§¹¹¹¹§¹§§ÌßĞÎĞ¡ÌĞÎĞÎÌÎĞĞ»§§¹¹¹¹§Ì¹§¹¹¹¹¹§¹¹¹§§§ÎçĞßĞÎßÎĞĞĞÎÎÎĞš§§§Ì¹¹¹§¹`3¼ˆ¡¾¬¡¡qĞ¢qqİtq¡¢¡ŸqŸØÅKqšØ˜`zqq¢¢­¢¢¢qq`ŸãKaqqq¡È­¢}q`İš§§§¹§¹§¹§§§§ÌßĞĞÎĞĞĞ»ÎÌÎÌ»§¹§¹§¹¹§§¹¹§¹¹¹§§¹§¹§¹ÌĞĞĞÎÎÎÎÎÎÌÎÎÎÎĞÌ¹¹¹¹¹¹¹¹¹¹¹¹¹¹§¹¹¹§¹§§ÌßĞĞÎĞĞÎĞÎĞĞÎÎÎ»¹§§¹§¹¹§¹q¼—¡­¬¡¡¢¡¡qqqæ—q¡qq`¡¡qq}Ÿãqq¼p`qqq¢¢¢­¬¢}qqœZqq`a¢¢È¡¢qqqæ§¹¹¹¹§¹¹¹»¹™ÌßĞÎÎÎĞÎÎÎÎÌĞ¹§§¹¹¹¹§¹¹¹§¹§¹§§§¹§§§§§ĞĞĞĞÎÎÎÎÎĞÎÎ§¹¹¹¹¹¹¹¹¹¹¹¹¹¹¹¹¹§§Ì§§ÌĞĞĞĞĞĞĞĞÎÎĞÎÎß§¹¹¹§¹§¹§¹`3¼¡È­¡È¡¡¢`êq}qz}¢}`ÇÅ}`¼q`qr¢¢¢¢}zqqaãi`zŸq¢¢¡}¢¢¢}q3ê`§§§§§¹Ì§§§¹§§ßĞĞĞĞÌÎÎÌĞÌÎÎš§¹§¹¹§¹¹¹§§¹¹¹¹¹§¹§¹§¹¹¹ÌĞĞÎĞĞĞÌÌĞĞÎÎĞÎ¹¹¹¹¹¹¹¹¹¹¹¹¹¹¹¹¹§Ì¹¹¹§§ĞßĞĞĞĞĞĞÌĞ»ÎÎš§Ì§¹§Ì¹Ì§›šq¼¬¡¬­¡¡qŸãMqqqÈÈ¡(¼·q(¼Kq`}¢¢¬¢¡¡qqxã`zqqq¢¢¢q`íš§»¹§Ì¹¹§¹§§š™ÌßĞĞÎĞÎÎĞ»ÎÎĞ`š§§§¹¹§§¹¹§¹¹§¹§¹¹¹¹¹¹§§¹ÌÎĞĞĞĞÎÎÎšÌÎĞĞÌ¹¹¹¹¹¹¹¹¹¹¹¹¹¹¹¹¹¹¹¹§¹§¹ÌĞßĞĞÎÎĞÎÎÎĞ§¹¹Ì§¹¹§§¹¹`3¨–¢¡È¢q¡Èq¡šŸ`¡q¾¡¢}q¼hqqİK`q}Î¢¢­¡¢q`qxØK`qzz}¡¢¢¢¢qqbí§§¹¹¹§¹Ì§§»¹§¹ĞĞĞĞÎÎ»ÎÌĞšš§¹¹§¹¹¹¹¹§¹§§¹¹¹¹¹¹¹¹§¹§§§ĞÎÌĞÎĞĞÎ»ĞĞÌ¹¹¹¹¹¹¹¹¹¹¹¹§¹¹¹§¹¹¹¹Ì§Ì§§ÌĞßĞÎĞÎÎĞĞ¡š¹¹¹§¹§¹¹§»¹¹š3¼¬¬¡}`}Ÿãtqq¡¡¾¡¢}¼v`qéf`q¡q­¢¬¡¡}qbãˆqqq¢z¢È¬¢¢qŸ§»¹§§»¹§§¹§¹»§ÌĞĞĞĞÎÎÎÎÎš¹¹¹§§§§¹§§¹§¹¹¹§¹¹¹§¹¹¹¹¹§¹ÌßÎĞ»ÎÎĞÌ¹¹¹¹¹¹¹¹¹¹¹¹¹¹§¹¹¹Ì§¹¹¹¹§¹§»šÎßĞĞĞĞ¡Î`¹§§§§§§§»¹¹Ì§`q¨¬¡¡zqq`í}q¢È¡¾¢qqÇ]`qé˜qqqq¢¢¡¢¡q`qœã˜`q¢¡­¢¡¢qqÇ§§§§¹§¹§¹§¹§§§¹šÎÎÎÎÎĞÎ`§™»¹§§¹§§§¹¹§§¹§§§¹§¹¹§¹¹¹¹§§§§ÎßÎÎÎ¡šÌ§¹¹¹¹¹¹¹¹¹¹¹¹§Ì¹§§§¹§Ì§¹§§§§¹§§šqĞĞĞqš™¹§Ì§¹§§¹§¹¹§§`!¼iq}Îz¡}ê}¡¡¢q¢}Ÿã.q`íq¢¢¡¢¡¡¡qqƒã}`q¡¢È¬}}qÏ}§§¹»¹§¹Ì§¹§¹§§§™§šÎĞ`šw§§§§¹§§§§¹§§§¹§¹¹¹§¹§¹§¹¹¹¹¹¹§§§§ÌĞ»§¹¹¹¹¹¹¹¹¹¹¹¹¹¹¹§§¹Ì§¹¹¹§§¹Ì§¹¹§§§wÌĞßš§§§»§§»¹§§¹»§»¹`qqqq¡í—q¢È}}qqqØM`zí}`qq¢¢­¢¡qqq¼Kqq¡¢¡¢¢}qİ¡§§§§§§¹§§§§»¹š§§§™šÌß¡§§§§§§§§§§§¹§§§§§§§§§¹¹¹§§¹¹¹¹¹¹§¹¹§Îß§§¹¹¹¹¹¹¹¹¹¹¹¹¹§§§¹§§§¹§§§»§§§Ì§§»§ššĞĞš¹§¹§§§¹»§§»§§¹§``œKqq}¡}ê}¡¢¡¡¡}qíMqšeqq¢¡¡¢¡qq3ÏZ`}q}¡¡¢¡¢qqê}§§»¹»§§§§š§™§§»§§š§`ßw§š§™™§™§§§§§§§§¹§§¹§§§§¹¹¹¹¹¹¹¹¹§¹§ĞßÌ¹¹¹¹¹¹¹¹¹¹¹¹¹§§§§§§§§§§§§§§§§§§§§§§š§§§§§§§§§§§§§§§§§§§`3ƒ¡q}Îr¡}ê}¡¡¢¡¡¡KŞKqœiqqqz¢¡Èq`qéi`qz¢¡¡¡`}`í¡§§§§§§™§»§§§§§§§§§§™`§§§§§§§§§§§§§w§§§§§§§§§§¹§§§Ì¹¹¹¹¹¹§¹§¹¹¹¹¹¹¹¹¹¹¹¹§§§§§§§§§§§§§§§§§§§§¹§¹¹¹¹¹›¹œ¹¨Ç¼¼¼¼Ç¼ÇÏÑÏŞİr3x}¡¡¢}q`í¬¡­¡È¢¡z}ÏKq¼h`qq¢¬¢¡qKaíqq}¡q}¡q`ƒK§š§š§»»§§§š§§§§§§§§§§§§§§§§§§w§§§§§§§§w§§§§§¹¹¹¹¹¹¹¹¹¹¹¹§¹¹¹¹¹¹¹§¹¹¹¹§¹¹¹¹§§ÇŞÑæÓàŞàÓààáàáíá×á×Ú×Ú×ÚÚÚÚÚÃååãåÚååÚååî[`aµ¡¬ÈÈ¡q}`æÅ¬¢È¢È¢¡q}Ñ33¼[qq}¢­¢¬¡qq¼ã}qz¡¢¡qq3İq§§™w™›œ¹¹¨¹¨œ¨ÆÆÆÆÆ¼ÆÏ¼¼ÏÏÑÏÏŞİŞææàæêàš§§§¹§¹¹¹¹¹¹¹¹¹¹¹¹¹¹¹¹¹¹ÎÌ¹¹Ì¹§§§š§àååÚåÚååååÚååãåååååÚåååãåÚåÚåãÚÚÚåÚåãÚååe`bÅ¡Ğ­¡¡¡qqq©˜}¡¡È­¡¾¡qqÏK`ÑMq}¡¾¡¬¡¡}qİt`q¡}z}q`é‘êáàáíáí××××ÚÚÚÚÚÚÚÚåÚåÚÚãååãåÚåãååããååãååÎ§¹¹¹¹§Ì¹¹§Ì¹¹¹¹¹¹¹¹¹¹¹¹Ì¹¹¹¹¹¹¹»§§àåÚãÚåãÚÚååÚÚÚÚÚÚÚåÚÚÚÚÚÚÚãÚ×ÚÚåÚÚÚãÚåãå[3št¡¬¢qqã¡¢¡¡¬¢¢¡}}ŞK3İ}}Î¢¡¡­¡¢}q¼ãŠqz`¡qq`Ø‘ÚåååÚåÚåÚåÚÚÚÚåÚãåÚãÚÚåãÚããÚÚÚãÚÚãÚÚãÚåãå§§§Ì§¹¹¹¹¹¹Ì¹¹¹¹¹Ì¹¹¹§Ì¹¹¹¹¹¹Ì§¹§šŞåÚÚÚÚÚÚÚÚÚÚÚåÚÚåÚÚÚÚÚÚÚ×åÚÚÚÚÚÚÚÚãÚåÚãå[3b¬¡q`q`}»qí¡¬¡¢¢¡¢¡qæ˜q3İ—qq¡¢¬¢¡¡qqİiqqqqqqqršØiÚÚ¶ãÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚ×ÚÚÚÚÚÚÚ×ÃÚÚÚÚãÚÚããå§Ì§¹§¹¹§Ì¹¹¹¹¹¹¹Ì§¹¹¹¹¹¹¹Ì¹¹¹§§¹§§ŞåÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚ×ÚÚÚÚÚÚÚÚÚããÚãÚãå[`aØ}¡qz¡}æZ¡¢¡q¡¢}æK`æ	i`}¡¡¢¢¡ŸK›Ø˜`qqa}qqœ‘ÚÚÚÚÚÚÚÚÚ¶ÚÚÚÚÚ×ÚÚÚÚÚ¶ÚÚÚÚÚ×ÚÚ¶Ú×ÚÚÚÚããØå¡§¹§§§¹Ì¹¹¹¹¹¹¹§¹¹¹¹§Ì¹¹¹¹¹¹¹Ì§¹Ì§§ŞåÚÚÚÚÚÃåÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚåÚÚÚÚÚåãåZ3›t¡q}a¡¢qÑi}}}qq}qŞÅ33éh}}¡¡¡¢¡}`bãp`q`qqqzqe¶ÚÚÚ³¶ÚÚ¶×Ú¶Ú¶Ú¶ÚÚÃ¶ÚÚÚÚÚÚ×Ú¶Ú×ÚÚÚÚÚØÚãåã¡§¹§¹Ì§¹¹¹Ì¹¹¹§Ì§§¹¹§¹¹¹¹¹¹¹¹¹¹§»§§ŞåÚ×ÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚÚ×ÚÚÚÚÚÚÚÚÚãÚÚåÚÚåãZ3šØq¡¡¡¡qã˜q}qqzqªÅq`êi`qq}zzq`K¼o``qqa`qK¼‘×Ã¶¶Ú×¶Ã¶ÃÚ¶ÚÚÚÚÚ×¶×¶ÚÃÚ×¶ÃÃ×ÃÚÚ×ÚãÚÚÚããå¡§§¹§¹¹§¹§¹¹§¹§¹¹Ì§¹Ì¹§Ì¹¹¹¹¹Ì¹§¹¹§ŞÚÚÚÚÚ×ÚÚ×ÚåÚÚÚÚÚÚÚÚÚÚÚ¶ÚÚÃÚÚÚÚÚÚÚÚÚãÚÚå[`a¯¡Ğ¡¡¡í˜}qqz`qqŸ˜33ê—3qqqz}q}qİh3qqqqq`Ïf×ÚÚÚ¶Å¶ÚÚ¶ÚÚÃÃÚÃ¶ÚÚÚ×ÚÚÚÚ×¶×¶ÚÚ×ÚÚÚÚÚÚ×ãå¡§¹Ì§¹¹¹¹¹¹§¹¹Ì¹¹§¹§¹¹¹§¹¹¹Ì¹§¹¹Ì§§ŞÚÚÚÃåÃÚÚÚÚÃÚÚÚÚ×ÚÚ×ÚÚÚÚÚÃ×Ú×ÃÚÚÚÚÚÚÚÚåãZq`Ø·Ğ¡¡¡ĞÈ¡êK¢}qqqqqØ˜``íoq`qqq}z}İh``¡qq`êhÚ×ÃÚÚ×ÚÚÚÚÚÃ¶ÃÚ¶×ÚÚÚÚÚ¶ÚÚÚÚÚÚÚÚÃÚÚÚÚÚÚåãã¡§¹§§¹§Ì¹§¹Ì§¹¹§¹¹¹¹¹¹¹Ì§Ì¹¹¹¹Ì§¹§§ŞåÚ×Ú×ÚÚÚÚÚÚÚÚÚ×ÚÚÚÚÚÚÚÚÚÚÚÚÃåÃ¶ÚÚÚÚÚÚãåt``Ø¸¡È¡¢¬¢¡ŞKrq¢q``í—`—`aq}zqq`êM`q`¢q`bØe×ÅÚ¶¶ÚÃ¶ÚÚÚÚÚÚÚ×ÚÚÚÚÚÚÚÚÚ¶ÚÚÚÚÚ¶×ÚÚÚÚÚãØåĞ§§¹ÌÌ¹¹¹Ì¹¹§§¹¹§¹§Ì§§§§¹§¹¹§Ì¹§¹§§ŞÚÚÅÚÚÃÚÚÚÚ×ÚÚÚÚÚÚÚ×ÚÚÚÃÚÃÃÚÃ¶×ÅÚÚÚÚÚÚ×åZq»Å¡¡¡¡ĞÈ­¡Ñq¡}¡}“3œ:`qq¢}qqœãK``qqqq¼[Ú¶ÃÚÚÃÚÚÚÚÅ×Ú×ÚÚÚÚÚÚÚÚÚÚÚÚÚÚ¶Ú×Ú×ÚÚÚãã×åã¡§§Ì§§¹§¹¹¹¹Ì§§§§Ì§§§§§¹§¹§§¹¹§¹§§wŞÚÚ××ÚÚ×ÚÚÚÚÚÚÚÚÚÚÚÃÚÚ×ÚÚ¶×ÚÚÃÚÚÚ¶ÚÚÚåÚãZqaí¸¡È¡¢È¬¬­ÓÅ}¢¡qŸ¡¢¢}¢qœ}`q¡a`q`İKqqq}qÏ?×Ú”ÊÅ×Ã¶Ú¶¶Ú×Å¶ÚÚÚ¶×ÚÃÚ¶ÚÚÚÚÚÃÚ¶Ú¶×Ú×ÚÚãå¡§§§¹§¹Ì¹§¹§§ÎÌ§§§¹§§Ì§»Ì§§¹§Ì¹Ì§§§ÑÚÚÚÚÚ×ÚÚÚÚÃÚÚ×ÚÚÃÚÚÚ×ÚÚÚÚ×¶ÚÚÚÚÚÚÚÚÚÚãå[``í}¡¡¡ÈÈ¡­¬à—¡È}}¢¡r¡qƒ—Kq``qqq`İÅ(````qqqÏ?±åÚÃ¶Ú¶ÚÚÚ×ÚÅ¶Ú¶ÚÃ¶Ú¶¶ÚÚÃÚÚ¶×¶ÚÚÚÃ¶ÚÚÚããã¡§§§§§§¹¹§§§¹§ßßÌ§§§ÎÎ»Îš§¹§§¹§§§§§ÑÚÚÃÚ×ÚÚÚÃÚÚÚÚÚÚÚÚÚ×ÚÃÚ×Ú×ÅÚÚÚ¶×ÚÚãÚÚãÚåZ`¡íÅ}Î¡¡¡¬¬¬¬ív¡¬¡¡¡¢È¢}q¼Mq`qqq`q(İ˜`qq}qİhÊÃ¶Ú¶Ã¶Ú¶Ú¶×¶×ÚÚÚ¶¶ÃÚÃ¶ÚÚ×Ú¶Ú¶×¶Ã×ÚÃ×ÚÚÚå§§Ì§§Ì§¹¹§§»§ÌßßÌ§ÎßßĞ§§§Ì§§¹Ì§§§ÑãÚÚÚÚÚÚ×Ú×ÚÚÚÚÚÚÃ×ÃÚ×¶ÚÚÃ¶Ú¶ÚÚÚ¶ãÚÚãÚÚåZqq¡¡¢¡ÈÈ¬­ãt¬¾¡¡¡¡¡¡¡¢qÍK`q`q`aqİ–q¡qqqqqéh®å¶Ã¶¶ÃÃÚ¶ÃÚÃÚ¶Ã¶ÚÚ¶Ú¶ÚÃ¶Ã¶ÚÚ¶Ú³¶ÚÃ¶¶ãã×å¢§§¹¹¹§Ì¹§§ĞÎÌÌßĞßÎßßĞĞ§§Ì§Ì§§§§›§ÑÚÚÃÚÃ×ÚÃ×Ã×ÚÚÚÚ×ÚÃÚÚÚÚÚÃ¶ÚÃÃÚÃÚÚÚÚÚåããåZqší˜}¡¡¡­¬Ôã¬¬¢¢¡¡¢¡¢Ğ¢3İ˜qq¢q¢qq}`ªtq}¢qqqê%®ÚÚÚ¶Ú¶¶Ú¶Ú¶Ú¶Ú¶Ú¶Ú¶×ÚÃÚ×åÚ¶×ÚÃÚÚ¶×¶ãÚããå¢§¹Ì§§¹§§¹™»ĞßĞĞÎßĞßÎßĞÌÎßĞ¹¹§¹§Ì¹wÏÚÚÃ×ÚÚÃÚÚÃÚÚÚÃÚÃÚ×Ú×ÚÚÚÚÚÚÚ¶Ú¶Ú¶Ú¶ÚÚÚÚãZqqí¡¡È¡ÈÈ¬¬Ó˜¡­ß¬¢¡¡È¢¢¢¬3Ş^`q`z`q»qÏt¡¢¡¢qqqqí*{åÚÚÚÚÚ¶Ã×ÚÃ¶ÚÚ¶¶ÚÚÚ³Ã¶ÚÃ¶ÚÃÚÃ¶Ú×ÚÚ¶ÚÚããå¢§§§¹§§¹¹§§ÌÌĞßßßßßĞçĞĞßß¬§¹§Ì¹¹§§§¿ÚÚ×ÚÃ×ÚÃ×ÚÃÚÚ×ÚÚÚÚÃÚÚ×ÅÚÚ¶×ÚÃÚÚÚÚÚÚÚãÚåZ¡ší}¡¡¡¡¡­¬êÅ¡¬¡¬¡¡¡¡¢¢¬}`éMqqqqqaq}¼Å}È¡¢¡qqípqåÚÃ¶ÚÚ¶Ã¶¶åÚÚ¶ÚÚ¶Ú¶ÃÚÚÚ¶×ÚÚ¶¶×ÚÚÚ¶ÚÚãÚãå¢§¹¹§¹Ì§§»šÎĞßßĞßßßßßĞĞß¬»§¹¹§§¹§»wÏå×ÃÚ×Ã×ÚÃÚ×ÚÚÚÚ×ÃÚÚÚÃ¶×¶ÚÃÚ¶Ú¶×Ú¶Ú¶×ÚãåZqØ¡}¡¡¢Î¬¾ã˜}¢¬¾¬¡¡¡È¢È}3æKaq¡q`zqqŸ˜q¢¡¬qq`q`ílqÚÚÚÚ¶ÃÚÚÚÚ¶¶¶Ú¶×ÚÃ¶Ú¶¶²ÃÚ¶¶Ã×ÚÚ¶ÚÚ×ÚÚããã¯§¹Ì§¹§¹§¹¹§»ĞßßĞÎĞÎĞßçßš§¹¹§¹§Ì¹§§ÇãÚ³ÃÚ×ÃÃ×ÃÚÃÚÚÃÚ×ÃÚÃÚ×ÚÚ×Ã¶ÚÚÚÚÚÚÚÚÚÚÚåZ¾¬q¡Ó¬¡¯¬Èq¡È¡¬¢¬r`ê}qŸqz`q}Ç˜q¢¡Èqz}í!Â¶¶Ú×¶ÚÚÚÚÚÚÚÚ×¶ÚåÚ¶Ú×è¶ÚÚÚÚ¶ÚÚÚÚ¶Ú¶ÚãØå­§§§§¹¹¹§¹§Ì§§ĞÎÎÎĞ»Ğß§§§Ì§¹¹¹¹™™¿Ú×ÚÃÚ×ÚÚ×ÚÃÃ×Ú×ÚÚ×ÚÚ¶ÚÚÃÚ×¶ÚÃÚÃÚÚÚ¶åÚååtŸt}}}é}¢¬¯¬¢¡¬È}`êÅq¢È¡¡zq}Çoq¡¡}¡}`qqíÓåÚ¶ÚÚÚ¶Ú¶Ú¶×¶ÚÅÚ¶ÃÚÚÃ¶Ú¶Ú×ÚÚÃ¶ÚÚÚ×ÚÚÚåã¯§§¹¹Ì§»¹¹¹§§ÎĞÎÎÎÎÎÎÎÎÎš§§¹¹¹§§§§§ÇåÃ×Ú×Ã×Ã×ÃÚ×ÚÃÚÃ×ÃÚÃ×ÚÃ¶ÚÚ¶¶ÚÃ¶Ú¶ãÚÚããå}¡ÏtÎ}¡¡ÈØ¬¬Èß¬}¡¬¡¢¡}`íÅq¡¢¢¢qz¢}ÏK}¡¢qzqqí)qÚÚÅÚ¶ÚÚ¶Ú¶ÚÚÚÚ¶ÚÚ¶Ú¶ÚÚÚÃÃ¶ÚÚ¶×¶ÚÚ¶ÚÚããå§§Ì¹¹§¹§§Ì§ÎßĞÎÎĞÎÌĞÎÎÎ»§§¹§Ì¹¹»wÇãÚÚÃÚÚÚÚÚÚ×Ã×ÚÚÚÚÚÃ¶ÚÚÚÚÃÚÃÚÚÚÚÚ×ÚÚäÚåå}}æ¬¡Î¡Î¡qÍ¬­¬¡¢ÈÈ¬¢¡qqíÅ(¢¢Èrqz¢¡ÑÅq¡¡qqqqqqí3Ã¶¶¶¶Å¶ÚÚÚÚÅ¶Ú¶¶Ú¶¶ÃÃ¶Ú¶Ú¶Ã¶ÃÚÚÚ¶Ú¶ãããã¯»¹§¹¹¹¹¹§¹ÌĞĞĞĞĞÎÎÎÎĞÎĞßš§¹¹§¹§»§§ÇÚ×Ã¶Ú×ÚÃÃÚÚÚÃÚÚÃÚ×ÚÚÃÚ¶ÚÃÚÚÚÚÚ¶Ú¶ÚåÚåÚ^KÎêt¡¡¢¡qæ—¡¬¬¬¢¢¡­¬}qx˜q¢¢¢¢¡qq¢q}İK`q¡qqqqqê£åÚÃå¶²Å¶Ú¶¶Ú¶ÃÚãÃÚå¶¶Ã¶ÚÚ¶Ú¶ÃÚÚÚ¶¶ÚÚãå¯§§§§»§§§§§ÎĞĞĞĞĞĞÎÎĞÎÌĞĞĞ»¹Ì§§¹¹§§ÇÚÚ×Ã×ÚÃÚÚ×ÚÚÚÚ×Ú×ÃÚ×Ã×Ã¶¶ÚÚ¶ÚÃÚÚÚÚÚããåKÎ¾
+<div align=center><img src='images/doctor_5.gif' alt='PC Doctor Recommendations' width='200' /></div>
+<?php
+$count=0;
+$blnNoOption=false;
+// if called by procfail
+if($_GET['calledby']=="procfail"){
+if($_POST['chkUpgradeYes']=="yes"){
+	$upgrade="yes";
+	$count++;
+}
+else{
+	$upgrade="no";
+}
+
+if($_POST['chkExtraYes']=="yes"){
+		$extra="yes";
+		$count++;
+}
+else{
+	$extra="no";
+}
+if($_POST['chkInsertYes']=="yes"){
+		$insert="yes";
+		$count++;
+}
+else{
+	$insert="no";
+}
+if($_POST['chkBiosYes']=="yes"){
+		$bios="yes";
+		$count++;
+}
+else{
+	$bios="no";
+}
+if($_POST['chkVoltYes']=="yes"){
+		$volt="yes";
+		$count++;
+}
+else{
+	$volt="no";;
+}
+if($_POST['chkMboardYes']=="yes"){
+		$mboard="yes";
+		$count++;
+}
+else{
+	$mboard="no";
+}
+if($_POST['chkSecCacheYes']=="yes"){
+		$seccache="yes";
+		$count++;
+}
+else{
+	$seccache="no";
+}
+
+if($upgrade=="no"&& $extra=="no" && $insert=="no" && $bios=="no" && $volt=="no" && $mboard=="no" && $seccache=="no"){
+	$blnNoOption=true;
+}
+
+}// if called by proccrash
+elseif($_GET['calledby']=="proccrash"){
+	
+if($_POST['chkErrMesYes']=="yes"){
+	$errmess="yes";
+	$count++;
+}
+else{
+	$errmess="no";
+}
+
+if($_POST['chkProgramYes']=="yes"){
+		$program="yes";
+		$count++;
+}
+else{
+	$program="no";
+}
+if($_POST['chkPeriphYes']=="yes"){
+		$periph="yes";
+		$count++;
+}
+else{
+	$periph="no";
+}
+if($_POST['chkSysWarmYes']=="yes"){
+		$syswarm="yes";
+		$count++;
+}
+else{
+	$syswarm="no";
+}
+if($_POST['chkNewpcYes']=="yes"){
+		$newpc="yes";
+		$count++;
+}
+else{
+	$newpc="no";
+}
+if($_POST['chkVcardYes']=="yes"){
+		$vcard="yes";
+		$count++;
+}
+else{
+	$vcard="no";;
+}
+if($_POST['chkLeanYes']=="yes"){
+		$lean="yes";
+		$count++;
+}
+else{
+	$lean="no";
+}
+if($_POST['chkBiosYes']=="yes"){
+		$nbios="yes";
+		$count++;
+}
+else{
+	$nbios="no";
+}
+
+if($errmess=="no" && $program=="no"&& $periph=="no" && $syswarm=="no" && $newpc=="no" && $vcard=="no" && $lean=="no" && $nbios=="no"){
+	$blnNoOption=true;
+}
+
+}//if called by procslow
+elseif($_GET['calledby']=="procslow"){
+	
+if($_POST['chkMemYes']=="yes"){
+	$mem="yes";
+	$count++;
+}
+else{
+	$mem="no";
+}
+
+if($_POST['chkLflickYes']=="yes"){
+		$lflick="yes";
+		$count++;
+}
+else{
+		$lflick="no";
+}
+
+if($mem=="no" && $lflick=="no"){
+	$blnNoOption=true;
+}
+
+}//if called by procspeed 
+elseif($_GET['calledby']=="procspeed"){
+	
+if($_POST['chkLedYes']=="yes"){
+	$led="yes";
+	$count++;
+}
+else{
+	$led="no";
+}
+
+if($_POST['chkRecBuyYes']=="yes"){
+		$recbuy="yes";
+		$count++;
+}
+else{
+		$recbuy="no";
+}
+if($_POST['chkSlightYes']=="yes"){
+		$offslight="yes";
+		$count++;
+}
+else{
+		$offslight="no";
+}
+if($_POST['chkNewChipYes']=="yes"){
+		$newchip="yes";
+		$count++;
+}
+else{
+		$newchip="no";
+}
+
+if($led=="no" && $recbuy=="no" && $offslight=="no" && $newchip=="no"){
+	$blnNoOption=true;
+}
+
+}//if called by procheat
+elseif($_GET['calledby']=="procheat"){
+	
+if($_POST['chkCompNo']=="no"){
+	$compound="no";
+	$count++;
+}
+else{
+	$compound="yes";
+}
+
+if($_POST['chkFanYes']=="yes"){
+		$fanworn="yes";
+		$count++;
+}
+else{
+		$fanworn="no";
+}
+
+if($compound=="yes" && $fanworn=="no"){
+	$blnNoOption=true;
+}
+
+}
+
+//echo "upgrade=$upgrade, extra=$extra, oheat=$oheat, insert=$insert, bios=$bios, volt=$volt, mboard=$mboard, secache=$seccache <BR><BR>" ;
+if($blnNoOption){
+	//echo "You did not select an option? However you can view some other important tips.<br/><br />";
+	WriteMessage ("View some other important tips.<br/><br />",1);
+}
+else{
+//Used to load the path for the CLIPS file from a text file.
+$filename="eng/pathtoclipsfile.txt";
+$file=fopen($filename,"r") or die("Cannot open file!");
+while(!feof($file)){
+	$fpath=fgets($file);
+	//echo "Clips File:".$fpath;
+}
+
+//Accesses the CLIPS file.
+clips_clear();
+
+if(clips_load($fpath)==true){
+	clips_reset();
+	
+	//$arr2=clips_get_deftemplate_list();
+	//echo $arr2[7];
+	if($_GET['calledby']=="procfail"){
+		clips_assert(array(recently_assembled=>$upgrade,extra_proc=>$extra,inserted_improperly=>$insert,bios_incorrect=>$bios,volt_incorrect=>$volt,mboard_notsupport=>$mboard,sec_cache=>$seccache),"procfailproblems","MAIN");
+	}
+	elseif($_GET['calledby']=="proccrash"){
+		clips_assert(array(err_messages=>$errmess,app_fail=>$program,peripheral_problem=>$periph,new_pc=>$newpc,vesa_running=>$vcard,warmup_problems=>$syswarm,leanonbox=>$lean,bios_changed=>$nbios),"sysinstabilityproblems","MAIN");
+	}
+	elseif($_GET['calledby']=="procslow"){
+		clips_assert(array(add_mem=>$mem,hd_light_blink=>$lflick),"sysslowdownproblems","MAIN");
+	}
+	elseif($_GET['calledby']=="procspeed"){
+		clips_assert(array(led=>$led,recent_buy=>$recbuy,off_slightly=>$offslight,new_chip=>$newchip),"procspeedproblems","MAIN");
+	}
+	elseif($_GET['calledby']=="procheat"){
+		clips_assert(array(hs_comp=>$compound,fan_worn=>$fanworn),"procheatproblems","MAIN");
+	}
+		
+	clips_run();
+	//$arr=clips_get_fact_list("procfailproblems");
+	//print_r($arr);
+	if($_GET['calledby']=="procfail"){
+		$arr1=clips_get_fact_list("proc01");
+		//$arr2=clips_get_fact_list("secondarycache");
+		//$arr3=clips_get_fact_list("overheating");
+		//print_r($arr1);
+	}
+	elseif($_GET['calledby']=="proccrash"){
+		$arr1=clips_get_fact_list("proc02");
+		$arr2=clips_get_fact_list("newpc");
+		//$arr3=clips_get_fact_list("overheating");
+	}
+	elseif($_GET['calledby']=="procslow"){
+		$arr1=clips_get_fact_list("proc03");
+		//$arr3=clips_get_fact_list("overheating");
+	}
+	elseif($_GET['calledby']=="procspeed"){
+		$arr1=clips_get_fact_list("proc04");
+		//$arr3=clips_get_fact_list("overheating");
+	}
+	elseif($_GET['calledby']=="procheat"){
+		$arr1=clips_get_fact_list("proc05");
+		//$arr3=clips_get_fact_list("overheating");
+	}
+	//echo clips_deftemplate_module("procfailproblems");	
+	//print_r($arr1);
+		
+	//print_r($arr2);
+	//print_r($arr3);
+	//echo $arr3[0][0].",".$arr3[0][1];
+	
+	//Load the recommendations.
+	include ( "include/db_conn.inc");
+	
+	$Tablename = "tblproblems";
+	$Tablename2 = "tblrecommend";
+	
+	//if(isset($_POST['cboComponent'])){
+		
+		//echo "paul";
+		
+		//$comp=$_POST['cboComponent'];	
+		$sql = "SELECT $Tablename.probId,$Tablename.qId,$Tablename.probDesc, $Tablename2.recDesc,$Tablename2.recHead FROM $Tablename,$Tablename2 WHERE $Tablename.probId=$Tablename2.probId ORDER BY $Tablename2.probId";
+		//echo $sql;
+		$result= mysql_query($sql);
+		
+		while($row = mysql_fetch_array($result, MYSQL_NUM))
+		{
+				
+			for($i=0;$i<$count;$i++){
+				if($arr1[$i][0]==$row[1]){
+					
+					if ($arr1[$i][1]==$row[2]){
+						//echo "<hr />";
+						//echo "<br />";
+						if($arr1[$i][2]=="yes"){
+							//echo "<br />";
+							if($row[4]=="Y"){
+								echo "<b>".$row[3]."</b>";
+								echo "<hr />";
+								echo "<ul>";;
+							}
+							else{
+								
+								echo "<li>".$row[3]."</li>";													
+								//echo " - ".;
+								//echo "<br />";
+								if ($arr1[$i][1]=="seccache"){
+									echo "<li>Check <a href='#'>Secondary Cache</a> problems.</li>";							
+								}
+							}
+							//echo $row[4];
+							//echo "<br />";
+													
+							echo "</ul>";
+							
+						}
+						
+					}
+					
+				}
+								
+			}//end for
+			
+		}//end while
+
+		if($arr3[0][0]=="overheating" && $arr3[0][1]=="yes"){
+					echo "<b>If you believe the Processor is Overheating:</b>";
+					echo "<hr/>";
+					echo "<ul>";
+					echo "<li>Check problems related to <a href='#'>overheating</a>.</li>";
+					echo "</ul>";
+					
+		}
+		elseif($arr2[0][0]=="newpc" && $arr2[0][1]="yes"){
+			echo "<b>If this is a newly installed pc:</b>";
+					echo "<hr/>";
+					echo "<ul>";
+					echo "<li>Check problems related to <a href='#'>new pcs</a>.</li>";
+					echo "</ul>";
+		}
+		
+	//}
+	
+}
+else{
+	WriteMessage ("Clips file could not be loaded!",2);
+}
+}
+
+if($_GET['calledby']=="procfail"){
+	echo "<b>Other important tips for troubleshooting processor failures include:</b>";
+	echo "<hr/>";
+	echo "<ul>";
+	echo "<li>Check to see if the <a href='default.php?pid=procheat'>processor is overheating</a>. After the PC has been running for a while, open it up, and turn it off. <br />";
+	echo "Then ground yourself and touch the processor carefully, or part of the heat sink near the processor. <br />If you cannot leave your finger on the processor for more than a few seconds due to the heat, the chances are good that the <a href='default.php?pid=procheat'>processor is overheating</a>.</li>";
+	echo "<li>Try toning down the BIOS settings to conservative or default values and see if this solves the problem.<br/>";
+	echo "Incorrect or overly aggressive BIOS settings can cause processors to behave strangely.</li>";
+	echo "<li>Try to reduce the speed of the processor to see if it fixes the problem.<br />";
+	echo "If the problem goes away, then it's quite likely your problem was due to <a href='default.php?pid=procheat'>processor overheating</a>.</li>";
+	echo "<li>If the processor can only run at slower speeds, it's possible that you may have unfortunately purchased a re-marked CPU.</li>";
+	echo "</ul>";
+}
+elseif($_GET['calledby']=="proccrash"){
+	echo "<b>Other important tips for troubleshooting processor instability include:</b>";
+	echo "<hr/>";
+	echo "<ul>";
+	//echo "<li> Also, scan for viruses. These are classic virus behavior.<br/>";
+	echo "<li> Also, scan for viruses. These are classic virus behavior.</li>";
+	//echo "Incorrect or overly aggressive BIOS settings can cause processors to behave strangely.</li>";
+	echo "<li>If you have a network card set up, check your network settings.<br />";
+	echo "Sometimes the built in Windows networking will use up system resources looking for a network.<br />";
+	echo "If you are using TCP/IP or some other network protocol, try disabling it and see if it solves your problem. If so, you may need to contact the network card manufactuerer.</li>";
+	echo "<li>Make sure you also disable all power management options in the BIOS.</li>";
+	echo "<li>Scan the hard disk for file system corruption and bad sectors.</li>";
+	echo "<li>A badly written driver program can also cause random glitches and lockups. Try running the system with a default driver or one given to you by the manufactuerer.</li>";
+	echo "<li>Unreliable power can also cause all sorts of problems. If possible, try running your system off a UPS or swapping the power supply with a new one.<br />";
+	echo "If this works you have a <a href='#'>power problem</a>.</li>";
+	echo "<li> Try using less aggressive BIOS settings for things like memory timing and hard disk timing.<br/>";
+	echo "Set memory access settings to the lowest possible, disable any performance enhancing BIOS settings.</li>";
+	echo "<li>Check for resource conflicts.</li>";
+	echo "<li>Check for possible <a href='#'>memory problems</a>.</li>";
+	echo "</ul>";
+}
+elseif($_GET['calledby']=="procslow"){
+	echo "<b>Other important tips for troubleshooting processor slowdowns include:</b>";
+	echo "<hr/>";
+	echo "<ul>";
+	echo "<li> Scan the system for viruses. This may be a contributary factor.</li>";
+	//echo "<li>If you have a network card set up, check your network settings.<br />";
+	echo "<li>Double check BIOS settings to ensure they are in proper order.</li>";
+	echo "<li>On an older machine with a functioning turbo switch, make sure it is pressed and the light is on.</li>";
+	echo "<li>Try defragmenting the hard disk.</li>";
+	//echo "If this works you have a <a href='#'>power problem</a>.</li>";
+	echo "<li>Check the amount of free space on the hard disk, as this may be low.</li>";
+	echo "<li>Update your Windows drivers.</li>";
+	echo "<li>Consider removing unnecessary programs from the system.</li>";
+	echo "<li>Check to make sure that the <a href='default.php?pid=procheat'>processor is not overheating</a>, and make sure the CPU fan is still running. <br />";
+	echo "Some CPUs, especially OverDrive processors, will intentionally slow the CPU down if they detect a failed fan, in order to prevent heat buildup. </li>";
+	echo "</ul>";
+}
+elseif($_GET['calledby']=="procspeed"){
+	echo "<b>Important tips for troubleshooting incorrect processor speeds include:</b>";
+	echo "<hr/>";
+	echo "<ul>";
+	echo "<li>Double check that the processor is set up properly; check the motherboard jumper settings.<br />If it is misconfigured the BIOS may be reflecting an incorrect speed.</li>";
+	echo "</ul>";
+}
+elseif($_GET['calledby']=="procheat"){
+	echo "<b>Important tips for troubleshooting processor overheating include:</b>";
+	echo "<hr/>";
+	echo "<ul>";
+	echo "<li>Test the temperature of the processor. Leave the machine running for an hour. Turn it off and unplug it, then open it up. <br />Touch the processor, or its heat sink near where it attaches to the processor.";
+	echo " If it feels very hot, especially if it is hot enough that you cannot leave your finger on it for more than a couple of seconds, <br />the processor is probably running hotter than it should be. </li>";
+	echo "<li>Consult your motherboard manual and double-check all the jumper settings for the processor. Make sure it is set to the correct type and speed. <br/ >";
+	echo "Make sure the processor is supported by the motherboard. Make sure the processor is inserted correctly into the board. </li>";
+	echo "<li>Verify the voltage requirements for the chip, and make sure they are set properly. Providing too much voltage to the CPU can overheat it. </li>";
+	echo "<li>Make sure you are using an appropriate cooling device for your processor. If you are using a Cyrix 6x86, make sure you use a heat sink and cooling fan designed for it. </li>";
+	echo "<li>Check your CPU fan to make sure it is still turning and ensure that it will not be obstructed by cables or hardware when the cover is put on the case. </li>";
+	echo "<li>There are many other parts of the system that can overheat. These can affect other components by increasing heat in the overall system. <br />";
+	echo "Check <a href='#'>general overheating problems</a> for a look at some of these.</li>";
+	echo "<li>Increase your processor cooling level. Some typical ways to do this include using a cooling fan if you weren't before, using a stronger fan, or using a larger heat sink. <br />";
+	echo "You can in some cases also install additional fans in the case that blow on the processor, but this is generally overkill.</li>";
+	echo "</ul>";
+}
+
+?>
+
+<div align='right'><a href=<?php echo "'default.php?pid=".$_GET['calledby']."'"?>>Back To Questions</a></div>

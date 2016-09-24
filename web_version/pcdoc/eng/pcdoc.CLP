@@ -1,2 +1,828 @@
-?Ÿ±³³×zÐßßßßçÐßßÐßßßßÐ}~‘šžœ››íÙwšËÓœ›ƒÆ;}}¡q/(KÄ`}Ît3/T¤¤{0aÆ¼ËÆ½ÆºÆ‚£å¶¶³¶’Ã¶³ ËËËËÍËÆË¼Ú¶¶Ã¶••³³¼ËÆË¼ÆÆz3Ïk‘•’Ã’¶³’e’••’³¶IßßßßßßçÐßßßßßßÐ¡£Ú`šŸ`šàr`›íÑƒœ¼œ—}ÎÐÐßÐÐÐq}ä”Ó£Ç««É³²¶¶²ÇÆ¼¨ºÆÍÍ½½œÃ¶¶•Œ•²•å±¼¼ËÍÆÆÍ¼¨Óåå¶ÚÚÃ²ŒÑÇË¼ÍË¼œØi‘•Ã³•ÃÃ¶¶˜‘’‘’’•³‰çßßçßßßßßßßßßßßßÓzš›š¼Ó{šéÑƒš¼œívÎÐßßÐÐÐÐÐÐÐ`t˜u’¶•¶²•²Ã²Ž¨¼ÆÍ½ÍÏË‚¿å¶¶¶••Ã²å¿Æ¼ËÆ¼ËÆ¼ÇÚ¶Ú¶Ã¶ÃÚ³ÇÝÝÝÏË¼Æi•’Ã¶Ã•Ã¶Ú¶ii’”u•’’Œ×cÐçßßçßçßßßÐßßßßßÈ±`ššÇÇ¼ËÑ¼œƒ¨ítÐßßßßÐÐÐÐÐÐÐÐ¡q•’’f’×Œ²•‰¶¶²¶×«œ¨½Æ¼ÍÆ¼¼a±å¶•Œ’Œ•¶³§œœ›¼œ››bàå¶Ú¶¶Ã¶Ú¿ÍÝÏÍÏÍ›ê’ÃÃ³Å¶Ã¶Ã¶Ú˜³³f’‘’’’’’•²ÐçßçßßßçßßçßßßßßßÊ`¼Ÿ¼Ï×Ñ¼›¼œê—¡ÐßßßÐßÐÐÐÐÐ¡Ÿ¢zŸ—c³—••••’³u’²¶×¶¶²¶Ú¼š›œÆ¹œœœw`Ã¶²••u’•Ú«¹›»œ›œœwŸåÚ¶••¶•Ú¤»¼Æ¼¼¼œÝp‘¶ÃÚ²Å¶Ã¶Ã¶••³Ã•×f‘u’’•Œ’¶¶ÐçßççßçßßßßßßçßßÐà•²ãÑ«›¼Ý¶Ñƒœ¼œêèè·]ÐßÐßßßÐßßßß}¤’³’Ã±rÓi’’c¶i’•Ã•’•³Œ’¶¶¶²Ã¶²¶²¼¹›››šœ››xq²˜‰u’uu’·}wx››š›šP{˜¶Œ’•‰¶×›š¼šœa§Í’ÃÃÚÅ¶ÃåÃÚÃÃ•Ã•³³f’’•’’•’•²Ðçßççßßçßßçßßßßßß•`ª¶×ååàŸÏÝŒÚ¶®¼œ¼œíÛt¡¡}ÎÎßçßßßßßßÐßß¡«Œ•’Âu•µ¤’’••‘p’•¶ÃÃ¶••j’²³¶¶²Œ’‰’²«™šššš™ššš¡¬“¬“À¬¬ßßßßÐ»š»ÎÎÐ¬¬Z‘fu”•¯š™š`§Æí•Å¶¶¶ÚÃ¶Ã¶Å¶ÃÃ¶Ã•f’•’••’•²fÐçççßßçßçßßçßçßßÔ•œÇÏÃ¶åãˆ¼©Ç«¶å’àÓœ›¼¼í“ÐßßßßßßÐßßßßßßßßßß}’’’’k’’’³Ø˜••’•’c‘³ÃÃÅ•¶•³u’Œ²’g’’²uZÐÐÐÎÌÎÐÎßßßßßßßßßßçßççßççßçççßßß¬ß¬¡Ð¡»¹¹Íí•ÃÃÚÅ¶ÚÃå¶ÚÃ¶ÃÃ¶Ãíf‘•’u²’Ã‰ßßßççççßçßçßßçßßßÔš¼ {²²ãå£¼Ç¼¤å¶’¤ÇØá¼›œ¨Ø–ÐßßßßßßßçßçßçßßßßßßKÂl’•’ˆ’’³Úµ¶³•••Ã•Ã¶¶Ã¶ÃÃÚÚu’²‰ss8KÎßßßßßßßßçßßßßßçßßçßçßççççççßççßçßçßßßçßê¶¶¶¶Ã¶ÅÃÚÃ¶ÃÅÚ¶Ã’’’Ã’••‰¬ßçççßçßçßçßççççççÔÚ  Ïƒ®’¶¶‘›¼ ªåu’¶£¼ÏÃ¼œ¼ÆÛÐßßçßçßßßßßßçßßßßßßß¡q”•’uce’•ÊÅÃÅÃå•Ã¶¶Å¶¶¶•¶ÚfKÐÐßççÐÐßçç¡¡ßççß¡ÐççççqÐ¬çççç¬}`ßßKš`ççßßçáÂ¶Ú¶Åå¶å¶Åå¶¶Ã×Úpf••³f²l¬ÐççßççççßçßççÐßçßçß¶å®›¼ƒ†Œ²ã~š¼¼Ñ¶u²‘œŸÝ¼œœËtÐçßßßßßßçßçßßßßßçßçßç¡3’•c6‘•×˜¶¶•Â¶Ã•Å¶ÅÃ˜¶Ãk’¡ßßßçßKPwßçç}Ðß`çç¡Ðß`çççÀÐçKqççç(ÐKšßÐ.aßççßÓ¶••¶•³Å¶Ú¶ÃÚÚÚÃ¶ÚÅ¶ÅÚ’•8cW’¡ßçßçççßçßççççßßá¿ßÔßÇ¶ãåƒš›ƒ’²Ú‘š¼ŸÝ¶u•£b›ÇÇœœËßçßßßçßçßßßßçßßçßßçßßßßßq•uJ‘’×•ÃÃ¶³Ã¶ÅÚ¶•••Ãå•¶Ã˜ÐçßK¡3§ß.çKÎß!¬ÎÐßPççtšÎßÐÐq¬ç}ÎÐ`/`Îßq/¬ççß••³ÃÃÃÃå¶Ã••eÃå¶Å¶Ú¶Ú¶×••cWcrÐççßçßççççßççßçÔÚ¶Úã®š¼ƒ’u²±š¼œ«Œ’•›œ›Ý¶Ê¿ÆœË‹ÐßçßßßçßßçßçßßçßßßçßççßçßK‘’@~Ã×Å¶ÃÅ•ÃÅŒÂÅ’ÃÃ¶¶ÃÅŒ•“Ðßß`ÐßÐß(š}§ÎÐß¡`ÎßÐßßqßççßçß¡`Îçßßßq»çççtwççç×˜³Ã¶Ã¶Å¶ÚÃå•³’fÂÚ¶¶ÃÅÚÚ‘•\{‘ÎçßççççßßççççßçßÔ`¼ÚŒ³ãã`œx±¶¶ÚaœŸÉu²~›š¼¶•ÅÏáƒœËÅŠáàÑÐçßßßçßÐççßçßçßçßßçßßßß¬¢Ã${³˜Ã¶¶Ã¶³uc³Å¶˜¶•¶•Ã••’×èßßßßPÐÐßÐÐ`ÎßßÐßPÌÐßßÕxx``Îçß`Pžßßç¬`Pšçß!ÎçççÓ³¶ÃåÅ¶Ú¶¶¶’f8r’Úå•å¶Ú³•c~cˆßççßçç}ßççßççßççÙqšÉ¶u×ã£š¼¤²á×{¼¼×Œ±žšœà’¶£ÍÁÆÆbKµàÐßßß`ÐßçßçßçßçßçßçççßßK³¶’Ã”¶ÅÚ••ee’¶•å¶ÃÅ•å•¶•ÖÐßçßKÎß¬ÐqwÐß¡PP§Ðß}wwwwww¹çß`xxPxßçwwPwç}çççß”¶ÃåÚÃÚÅ¶ÚŒc‘XcÃÚÚÚÃ¶ÚÃŒW’rßçççç¡Ðçßçççççßí{`Ç¶’±îÂœÍªÑÇÇœ›› ‘®xšª•Êe›é˜œ¼H3Úäßçßßçßßßçßçßßßßçß¬’”•‘˜ÃÃÚ¶•fc³ÚÅ¶Ã¶••Ã¶•Ãßçßßç¬PÎß`P/ŽÌßßqwwÌÐßww§Ž™§x§ßßÎw§wPÎç¡wxwÐç3ßçççÓ³Ú¶¶åÚ¶Ú¶ÚÚuW-®ãfµ¶ÚÃ³—’³•z¡}¡ÔêÃ»çççççßçßŽš«Œ³³¾œšq`}q¢``šŸÍ³²’žœà˜`¼0/ÙÐççßçßçßçßççççççç}YJ8{u•²Ú¶å¶6‘••å¶˜••Ã•¶áÖÐßßßßKÌß¬www§ÐßßPwwÎÐ¡ww§wwww§ÎßÐ§ŽŽPšççwwPÎç}`ççç¬Â¶ÚÃåÚÚÅ¶ãÚå³’ÚbåÚÚ˜A×\3³³®ê‘ßççßçççíÚxšàˆšš`qzqŸžqq``/`¿ÚÂašOÝ
-›Oæ·ßßçßßçßçßçß¬ççßßßˆ³±µ’Ã’’³ÃÅ¶µÅ•²Ã¶¶¶ÃåÃ¶Ã³×ßßçßçt§ßÐwwxwÌÐß}ww§Îç¡w§x§Ž§ŽwÎßßww§wwßçqwx§çç/ßççç®³ÃÚ×ÚÃ×ÚÅååuŠÚåÚÚÚÃ¶˜Ã¶’‘Ã’³•×Ú¢çßçßçß×›P/3aq/aa/žÑœ¼±Ýi!3ÍÐçççßççßçççqÎççç¬®¶k!³•Ã¶•Ã¶¶¤ÚÅ¶¶Å¶Å¶Ãè×Ú¥Ðçßß¬šÐÐ¡Pww§Îßßqww§ÐÐ¬wŽx§§w™w§ßçšxw™wÐç¡wwwÐçKççççØÚÚ@}“”«¶®ÚÅÚÃ¶•³³Åk!±•Ã²³Èçççç×X``/¢}`aqq`3`»à±Ê' ê¡ßçßççÐçßççàYçç}±˜²Ã²••Ã¶ÃÃ¶ÃÚ~å¶å¶f¬¸ÐßßßçKÌßÐ`wxxÌÐßç`wwÌßç}w§™§Žx§w¹ßß¡w§xwÌçßwŽPÎç¬`ßçççÔq(äåcÓå×èÃÅÚÃ¶Ã¶³Ã•³ÃÚÒßççBq33/Èq3!0`abÇTVY\>áˆßßçßççßçß­‘£}’¶³Å•ÃÃ³ÃÃÃåÚAr×³¶Ú¶t¡é¬ÐßçßçÐß¬wwwwÌÐß¬Pw™Îßß`§™™w§§™wwÐçßwŽw§¹ççwwwšß¬}­ççç¬áÅÐß}`ÙåÃÅåÃå¶ÃÃÃ¶Ãå¶Ã¶•×äÈí/3/`¢+3-`a`/˜Ú2TÊc‘‹ˆMqØÅßçßçßççççê˜•³’Ã••¶Ã¶Ã¶Ã¶Å²Å²’å¶å—t¡Î¦ÎßçßßKÌßßPwx§Ðßç}wwwÎßßwŽ™™™™Žwx§Ðßçx§Žw¹çç`Žw§ßçq¢ßçççßØ¸ÐÐß¡qÃåå¶åÚåÚÃå•ÚÃÃ³•ÚÚaq3//žq`!a`šaIaæp¼ VcfZ¬qÈ```SµÐçççßççßê”•³¶ÃÃÃ¶ÚÅÚÅ¶¶Å¶•å¶¶˜}ÐÐŸÅÐßçßßçqÎçß¬www§Ðßßqww™Ðßß`ww™ww§§wwÎçç`wwx§çç`ww§ßç(®Ðçççç­tÐßÐÐ¡ˆåÚÚÚÚÅÃÚÚÚÅ¶ÃÃ¶Ã`qa`¢zx¡¢¢q`ƒk`8[.q```Ÿ¡3Ø[ßßçßçßÔí’••Å¶¶ÃÅ¶¶¶¶ÅÃ¶•Å¶•å¬ßÐÐÈÀßçßßßçÐßßwwP§ßßç`ww§ßßßww§™§ŽŽŽx§Ðßç`§wx§çç`wxwßçK«ÀçççççÔ¡ÐßßÐÐ}×ÚÅÚÚÚåÅåÚÚÅÚÃ¶Úž¾``qž¡žÈ¢ÔÈ¢}b3Ppàš/`ŸÈzbH¡ßçßßÓí’Ã•Ú•å•¶Å•Å¶¶ÅÃå•Ãå•ßßÐß¡ÄÐßßßßçç`Ðßßqw™P§ÐçßPxw§ßç¬ww™§Ž§™ww§Ðçç`Žxw§ççwwwwßç(¤­çççççç¢mÎÐÐÐßÐ}áÃåÃ¶Å¶ÚÃÃå¶Ú¶ÚÚBžqq`­z3`ÈÈ¬Ô}q``êpà@/!'`/ažqP-b/b”Çáí”•ÃÃÅÃå¶Ãå•¶•å¶Ã¶¶¶ÁßßÐß¡áÛßßßßçßç¬`ÐßßwwwÌßß¬Pww§ßßçwŽŽx™§xww§ßßçqxwx§ßçwwP§ßç(«Ôßççççßç¡—ÐßÐßÐßÐ¬³¶ÚÅåÃå¶åÚÚÅÚÃÚÚq3/q`q¡­¡¡aqƒÝ`a/+/`a`a`•ÃÃ¶¶¶Ã¶Å¶¶Ã¶•Å¶••Ã¡ßßÐÐß·Ðßßçßßßç¬qÎçßšwxwÌßß¬wŽw™Ðßßww§§x§™wx§ßççqw§x»ßÀP§PÌçç3®Áçççççççç¡¯‹Ðßßßßßß}Â¶Ã¶ÚÚ¶ÚÚÃåÚ¶ÚÃk``qšŸaž¢az¢qa`//Øp©—a/!``PžP`ša`iÃ¶Å•ÚÅ¶ÃÅÃå•å•¶Ã•¶­ßßßßß¬q–ßßßßçßççß¬¢ßß¡PwwÌçç¬www§ßççP§wŽ™wŽ™w§ßççqŽww¹ç¬xwPÎç¬3²¬çççççççççßq­Ûèv}ÐßÐßßßßßçq±¶ÚÃ¶ÚÅ¶Úå¶ÚÃåÚ%qš¡q`aqq`zš3/Ø•ª˜9`až»HšŸŸ`wÈÎ3ª”ÃÚ¶Ú¶ÅÚ¶¶Ã¶ÃÚ•¶Ã•¯ßçßßßß¬qäè“ÐÐçßßßßßç¡`ßßßwwwÌçß¡wwŽwÐßß`w§™§™™wxÌçççw™xPÌç¬ww§ßçtb’¬çççßççßçßççßÐ¬¡ÐÐßßßßßßßßß¬¢¶ÃÃÚÚ¶Ú¶¶ÚÚÅå¶åè```bq`q/Øi½ ›ÈŸ3bÐÈ3`ž¡/•ÃÅÅ¶Ã¶Å¶¶ÅÚ¶¶•Ã•²‘ßßçßßßßß}¬ÄÛÛè·¥¬ßßßßßßßçßßç¬¿6Ðçß`ww§ßç¡PwŽwÎçß¡x™ŽŽwxwwÎçç¬wwxwÐç}Pw§ßç(«k¡ççßçßçççççßçççßßçßßßçßßßßßç}±Ã³¶Ã¶ÚÅ¶ÚÚ¶¶¶Ú¶’³’Ú`q3`3a3b`q`ažyØ3ªp0qšŸÈ300//b`Ÿ/‘XêÅµ¶¶ÃÅ¶ÃÅ•¶•Å¶Ã••••ÐßßßçççßçÐ¡}¡}Ðßßßççßßçßççßç¬¢B»çß¬PP§ßß¬wŽwPÌßß¡www§Ž§w§Ðßç¡xxw™ÐçqwwÌç¬b±Œßçççççßçççßçßßßçßßçßßßßßçßç¬¤¶¶¶Ã¶ÅÚ¶×Å¶ÃåÚÃå¶å¶¶×a/ž`3/3azqq`3êí.3æŸÁ`žšqš``šzaa/!êiˆÃÃ¶Ú•å¶Ú³åÃ¶•Ã•’’ßçßßßßßççßçßçßçßßßçßçßßßßçç¬Ÿ’aßçßwP§ßçÐPwŽP§çßßP§ŽŽw™x§ßçç`wxw§çßPw§Ðç({¶ußçßççççßçßçßçßßçßçßßçßçßçß¡«³³Ãå•å¶ÚÃ¶¶•å¶¶¶å¶åÃåÃl~```a`ž`+3Þ`ê 3(P`Haaš30P`Å•Ã˜²ÃÅÃ¶Å¶Ã¶Å•¶Ã¶••••²ÈßçççßçßßçßßßßßßçßßßßßçßçßçÀ¢’cÎßç`PwÐßçw™OxPÐßçwwwwwwÌßç¬wOw§Îç¬Pw§ßt+±Œußçççßçßçßçßçßßçßßßçßççßß¬}«³¶¶•’ÚÚ¶¶¶Åå¶¶åÚ¶¶ÚÚå¶¶¶ÚE/È¾­È¢z`///3½````/``a0Å•³•ÃÃÅ¶¶¶Ã¶ÃÅ¶¶¶•¶•’”’”•²Òßçßçßççççßçßçßçßßßßßßßçßç¬r²³+ßß¬PwÌßß`PwwwÎßç¡wwwxwwÌçç`www§ßç`P§ß¬«••’¬çßççßçççßßßçßßßßßçßß¬¬Ÿ«³²¶f±f³Ã¶Ã•å¶WÅ#e×”‘³f‘¶Ú¶•±’L+`qÈ¬¬q`3a33`b{ê˜!a-Pqx`H``/Hqw†Åµ’Ãµ¶••ÃÅ¶Å¶Ã¶ÚÅ¶•Ã••u‘c”‘å®¡ßßßß}ßßçßßçßßßßßÐçßçßßç¬~’•YçÐP/§ççPwww§ßß¬wwwww§Ðç}xwxwÐç¡P/§çƒ•’•²ççççßçßçßßçßçßßçßçKqà±³Ã•³•‘~uÃÚÅ¶¶¶ªk{fsef’³å¶¶³){8`3//H```za``ƒíhÇAw```3P`šxaíf••ÃÃÃÃ•ÂÃ’µå•”¶ÅÚ¶ÃÃ’@-{c³¶¶±¤®±}Ðßçßßßçßçßçç¡ßßççç¡†•’²6Îç`PP§Ðß/PPPwßßç`wwP§Îßß`wwP»ß¬/PwÌ(_²•’••‘ßçßççßççççßçßßçßßßçq’•Ã¶Ã².cJ‘’Ã¶¶Ã¶ÃåcÅ\6[Jc³¶¶Ã¶×íJq3/`qqqqqqIa3b.3Ç`Ÿšž›žž3//I0e•••Å¶f8ef6Âu’Ú¶•••••’’c>r’‘’ŒÃ•çßçßçßßçßßßß3ÐßßççK’’’’’ÎßÐÐ`ÐßßÎÐw/§ßçßßPwÎßß¬§Pš»ßß}PÌÐ¬`á••¶•²•ÐççßçÀqßççßßßçßßçßç¬q¶>L×ALs’u¶¶•¶Ã¶Ú¶@†Ú•W‘Ã’¶Ú¶tq`zq¢q¢`qqq``/qÃ(Ý`/šÐŸÐ`//`KÉ‘Ã²ÃÃ•scc’’ÃÃhÃ¶Ã’•³¶’’’c’c±•²tßçßßßçßßçßßç¬qÎççßç{u’’u±(Îßç}šÐßßßç¡P§ßçßÀ`wß¬ßßß`qßßß¬Îççç/³¶••’ÃÃ~ççççß¬Ðçßçßßßßçßçßç}³•†’~±³•³•ÃÃ¶Ã¶¶ÃÃ¶•¶¶²³ÚÚÚÚ¸.Pqq¡È¡¢¡¢zzqz``Kˆ33é3``/H3///```PJ‘í’”•Å•Ã•Ã’å®kSÃ¶•Ã•••Ã•Ã²e’e’¶¡ßçßßßçßçßßçß¡±¡ßçç¬’’’uuußçß}/3wß¡`ÐÐ`ÐßqÎß¡šÐ¬ÐKšt//š¬KK3àå••³•¶’ÐççÀ±Åçßççßßçßçßßç}r³7³¶Ã¶Ã³¶¶Ã¶•³¶³³”áÃÃÃ×ØŠ(3``qž¡¡­¡ž¡qqÈzzz``/Käi`í`H`P`aqx`b`a`ªWíÂ‘•Ã••¶Ã•s±Ú¶Ã¶¶•Ã•¶•Ã³•’’’’•Ðßçßçßßßßßßçß‘•‘ßç¬••’’’•~¡!ÌçqÐßMÌßß¡š¬ßççß¡¡}Ðßßq`Î¬qP±±Ú¶Å²Ã¶•¶‘ß¬£²¶rßçßßßçßßßççç¬{˜®¶Ã³¶ÃÃ¶Ã¶’××ÃÚ××i(```qqq¡¢ž¡¡¡ž¡žq¢q¢q}`3r[!aí3/až`b`œÎba`abÂ‹£Ê#íÃ‘u”’••Ã••Ã¶••Ã¶•²•’¶•²••¶••¡çßß¬ßßçßççß¬’’”Ð¬«•²’•’•’³±®`K»Ð¬šÐßßß¡»Îßßßß¡ÎÐÐßÐßÐÐßçK/ÚÃå¶•Ã¶•³ÃÚrz’e³uÎççßçßççßßßßt‘•²Ã¶³¶••¶Ã¶¶³×M3`3a`q`}qa``}qzqqqaq›qaqI`a`¢×K!Pp/`a`ž¡žžqaž`{«¢3Çî93ÄÚ³³á³Ú²ÂÃ¶¶³•••••Ã•Ã•Ã•Ã¶•Ðççßßçßççßç¬±¶’•~¤²Ã••’•’’áåå\/ÐßßçßßßßÐßßßßßÐßßÐÐÐÐÐßßÐç¬}zÃ•ÃÃå•Úu³ÚÚÚ‘³s±Ú~ßççßßßßççßç}†••³•¶•ÃÃ²³×Ú—9(qqŸžžq`¡zž¡žž¢¢ž¢Ÿz}`q`£(a3í0x```›žzž`azÑ·3/†r``/täÚÂ‘•¶•¶•²•Ã•¶•¶•³¶Ðßçßßßçßßçç®’’•‘³¶³¶’Ã•’•³å¶å•/ÎçßßßßßÐßÐßßÐßÐÎÐÐÐÐßççßÐ¬/¶¶Ã¶ÚÚ•ÚÃÃ¶å†ÅÅ²•çßçßçßßßçç¬‘²•³¶³Ã¶ÃÃÚ¸9(``Pqq¢qž¢¢ž¢q¡Ÿ¡¢È¾¢È¢¡¢¢žrqzq`3 ¸33`í˜!PÁÊrH````©×rqaƒã‘q`q`/¢³ÂÃ•ÃÃ•’’³•’•Ã¶Ôßßçççß}Ðßˆ’•"~±Ã¶ÃÃ•Ã•×Ú¶ÚÚ\wÐßßßççÐßÐßÐÐÎÐÐÐÐßÐßçç¬ÐÐß¬`³Ã•¶ÚÅ¶Ã¶Å¶ÃÚÚ$ÃÚ±Ðççßßçççßç}®•³•×³×³×9KaaI`Iqžzqqqq¢¢¢¢¢¢È¢¡ž¢¢¢¢¢¡ž¢¢zžzaaÏi3'ŸØC`¢ÀrÉá¤«{{ªqÒ–}`/¤¸t`Ÿqqz`3/®ÚáÚ³³³Â•”³•³Ã‘ßçßßßçßßˆ±²Ãu‘•ÂÚ¶Ã¶Ã•×ÃÅÚÃ¶fPßßÐÎ¡ÐßßßßÐÐßÐÐÐßßßçççÐÎÐßß¡`•³ÃÃ¶Úå¶ÃÚÚÚÚÃå6~‘Úsççßßßßçç¡²Ã’áÃÚÚŠ``qq`q`qqqa}qžž¢q¢ž}¡ž¢Ÿ¢¡Ÿ}¢z¡¢¡Ÿ¡q`íZ``à{baw`P¾ä·­åÖÙî/```{Âq`zqŸqqa}`/~¶°ÂááiÐßßççßß±³³•’f®u±Å¶Ã¶µÃÚå¶¶¶•\wßßßßßÐÎÐßçßßßßßçßçßßÎÎÐßßßßßq³¶•³¶ÚÚÚ¶Å¶Ãå¶¶’W‘’¶’ÎççççßççßáÅ(¢¡žqzqzq`zž¡ž}¢¢¡ž}žž}¢¡ž¢ž¢}Ÿ¢žÈ¢¢¢qžz3b(3Hí/Óåebq`qqqq}q}t}žqqaíåqžqzržzžŸ}a3ÓÐçççç£±•¶•³‘e±Ú¶¶åÚÃ²Ú¶Ã¶••ÃešßÐßßßßßÐÎÐÐÐ¡ÐÐßÐÎÐÐßÐÐßßßÐß(±•³•Ã¶¶ÅÚ¶ÃÚÚÚÚ•‘c³³Å³{ßçççççá9`q¢¢}qqžqžqŸqžažrqz¢}`¡ž¢ž¢Ÿ¢}ž¢¢¾¢¢¢zq`3í(3œØqa`q“ÓÊ¢qžzqž``š`Ix+¬“qq¡ŸarrzqaØiÎçß®±’Ã’Ã×iJ’Ã¶ÅÚ¶ÚÃÚÚÅ¶³¶³¶7šßßßßßßÐßßßÐßÐÐÐÐßßßßßßßßßÐßßq~¶•••ÃÃåÚ
+(deffunction selprob ;function definition.
+	(?x); arguments passed to the function.
+	
+	
+
+	(if (eq ?x processor) then
+		(assert(procprob yes))
+	)
+	(if (eq ?x memory) then
+		(assert(memprob yes))
+	)
+	(if (eq ?x harddrive) then
+		(assert(hdprob yes))
+	)
+	(if (eq ?x motherboard) then
+		(assert(mbprob yes))
+	)
+	(if (and(neq ?x processor)(neq ?x memory)(neq ?x harddrive)(neq ?x motherboard)) then
+		(assert(endprog yes))
+	)
+);End deffunction.
+
+;deftemplate for processor diagnosis (nb. I haven't used this)
+(deftemplate procproblems
+
+	(slot failure (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot overheating (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot system_crash (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot procspeed_incorrect (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+	
+	(slot slowdown (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+)
+
+;deftemplate for processor failure troubleshooting
+(deftemplate procfailproblems
+
+	(slot recently_assembled (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot extra_proc (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot inserted_improperly (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot bios_incorrect (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot volt_incorrect (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+	
+	(slot mboard_notsupport (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot sec_cache (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+)
+
+
+;deftemplate for cache troubleshooting
+(deftemplate cacheproblems
+
+	(slot cache_disabled (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot add_cache (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot insert_improperly (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot overheating (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))	
+)
+
+;deftemplate for system overheating troubleshooting
+(deftemplate sysheatingproblems
+
+	(slot psfan_notrunning (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot proc_ovheating (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot cchips_hot (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot voltreg_hot (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+	
+	(slot bchip_hot (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))	
+
+	(slot mem_hot (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))	
+)
+
+;deftemplate for system slowdown troubleshooting
+(deftemplate sysslowdownproblems
+
+	(slot add_mem (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot hd_light_blink (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+)
+
+;deftemplate for system instability troubleshooting
+(deftemplate sysinstabilityproblems
+
+	(slot err_messages (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot app_fail (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot peripheral_problem (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot new_pc(type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot vesa_running(type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+	
+	(slot warmup_problems(type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot leanonbox(type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot bios_changed(type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+	
+)
+
+;deftemplate for incorrect processor speed troubleshooting
+(deftemplate procspeedproblems
+
+	(slot led (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot recent_buy (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	 (slot off_slightly (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))	
+
+	(slot new_chip (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))	
+)
+
+;deftemplate for processor overheating troubleshooting
+(deftemplate procheatproblems
+
+	(slot hs_comp (type SYMBOL)
+		(allowed-symbols yes no)
+		(default yes))
+
+	(slot fan_worn (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+)
+
+;deftemplate for memory failure troubleshooting
+(deftemplate memfailproblems
+
+	(slot new_pc (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot duplicate (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot opsys (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot dusty (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot simm (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot dimm (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot mismatch (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot old_mboard (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot res_mboard (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot mboard_430hx (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot sdram (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot edo (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot diff_mem_type (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot spec_bios (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot mboard_prob (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot metal (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+)
+
+;deftemplate for memory parity troubleshooting
+(deftemplate memparityproblems
+
+	(slot err_boot (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot err_bios_boot (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot it5h_mboard (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot ecc_enabled (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot err_addr_same (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))	
+
+	(slot addnew_hardware (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot chkparity_disabled (type SYMBOL)
+		(allowed-symbols yes no))		
+)
+
+;deftemplate for memory not recognized troubleshooting
+(deftemplate memnotrecproblems
+
+	(slot bootup (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot not_all_rec (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+)
+
+;deftemplate for memory out of memory troubleshooting
+(deftemplate memoutproblems
+
+	(slot run_prog (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot outmem_win (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+)
+
+;deftemplate for memory performance troubleshooting
+(deftemplate memperformanceproblems
+
+	(slot add_noimprov (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot add_worse (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+
+	(slot over256 (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+	
+	(slot use_slow (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))
+	
+	(slot intel430hx (type SYMBOL)
+		(allowed-symbols yes no)
+		(default no))	
+)
+
+
+;defrule to make recommendations if processor fail is the problem
+(defrule procfailrecommend
+
+	(procfailproblems (recently_assembled ?up)(extra_proc ?ex)(inserted_improperly ?ins)(bios_incorrect ?b)(volt_incorrect ?v)(mboard_notsupport ?mb)(sec_cache ?c))
+
+=>
+	;facts to be asserted and returned to php.
+	(if (eq ?up "yes") then
+		(assert (proc01 upgraded yes))
+
+		;upgrade problems provide an additional link to power and memory problems
+		(assert (powerproblems yes))
+		(assert (memoryproblems yes))
+	) 
+	(if (eq ?ex "yes") then
+		(assert (proc01 extraproc yes))
+	)
+	(if (eq ?ins "yes") then
+		(assert (proc01 insimproprly yes))
+	)
+
+	(if (eq ?b "yes") then
+		(assert (proc01 bios yes))
+	)
+	
+	(if (eq ?v "yes") then
+		(assert (proc01 voltage yes))
+	)
+
+	(if (eq ?mb "yes") then
+		(assert (proc01 incompatible yes))
+	)
+	
+	(if (eq ?c "yes") then
+
+		(assert (proc01 seccache yes))
+		
+		;used to create an additional link to seconadary cache problems
+		;(assert (secondarycache yes))
+	)
+)
+
+(defrule sysslowrecommend
+	(sysslowdownproblems (add_mem ?m)(hd_light_blink ?f))
+=>
+	(if (eq ?m "yes") then
+
+		(assert (proc03 memory yes))	
+
+	) 
+	(if (eq ?f "yes") then
+
+		(assert (proc03 lblink yes))
+
+	)
+		
+)
+
+;defrule to make recommendations if processor overheating is the problem
+(defrule procheatrecommend
+	(procheatproblems(hs_comp ?comp)(fan_worn ?fan))
+=>
+	(if (eq ?comp "no") then
+
+		(assert (proc05 nocompound yes))
+
+	)
+	(if (eq ?fan "yes") then
+
+		(assert (proc05 fanworn yes))
+
+	)	
+		
+)
+
+
+(defrule sys_ins_recommend
+	(sysinstabilityproblems (err_messages ?e)(app_fail ?a)(peripheral_problem ?p)(new_pc ?n)(warmup_problems ?o)(vesa_running ?v)(leanonbox ?l)(bios_changed ?c))
+=>
+	(if (eq ?e "yes") then
+		(assert (proc02 errmessages yes))		
+	) 
+	(if (eq ?a "yes") then
+		(assert (proc02 appfail yes))
+	)
+	(if (eq ?p "yes") then
+		(assert (proc02 perproblem yes))		
+	)
+	(if (eq ?n "yes") then
+		;used to create a link to problems related to new pcs
+		(assert (newpc yes))
+	)
+	(if (eq ?o "yes") then
+		(assert (proc02 overheating yes))
+	)
+	(if (eq ?v "yes") then
+		(assert (proc02 vesa yes))
+	)
+	(if (eq ?l "yes") then
+		(assert (proc02 lean yes))
+	)
+	
+	(if (eq ?c "yes") then
+		(assert (proc02 nbios yes))		
+	)
+)
+
+(defrule procspeedrecommend
+	(procspeedproblems(led ?l)(recent_buy ?rb)(off_slightly ?off)(new_chip ?nchip))
+=>
+	(if (eq ?l "yes") then
+		(assert (proc04 led yes))
+	)
+	(if (eq ?rb "yes") then
+		(assert (proc04 recbuy yes))
+	)
+	(if (eq ?off "yes") then
+		(assert (proc04 offslightly yes))
+	)
+	(if (eq ?nchip "yes") then
+		(assert (proc04 newchip yes))
+	)
+)
+
+;defrule to make recommendations if memory fail is the problem
+(defrule memfailrecommend
+
+	(memfailproblems (new_pc ?new)(duplicate ?dup)(opsys ?os)(dusty ?dust)(simm ?s)(dimm ?d)(mismatch ?mis)(old_mboard ?old)(res_mboard ?res)(mboard_430hx ?hx)(sdram ?sd)(edo ?ed)(diff_mem_type ?diff)(spec_bios ?spec)(mboard_prob ?mbp)(metal ?m))
+
+=>
+	;facts to be asserted and returned to php.
+	(if (eq ?new "yes") then
+		;used to create a link to problems related to new pcs
+		(assert (newpc yes))
+
+	) 
+	(if (eq ?dup "yes") then
+		(assert (mem01 dupmem yes))
+	)
+	(if (eq ?os "yes") then
+		
+		(assert (mem01 os yes))		
+	)
+
+	(if (eq ?dust "yes") then
+		(assert (mem01 dust yes))
+	)
+
+	(if (eq ?s "yes") then
+		(assert (mem01 simm yes))
+	)
+	
+	(if (eq ?d "yes") then
+		(assert (mem01 dimm yes))
+	)
+
+	(if (eq ?mis "yes") then
+		(assert (mem01 memmis yes))
+	)
+	
+	(if (eq ?old "yes") then
+
+		(assert (mem01 memold yes))
+	)
+	(if (eq ?res "yes") then
+
+		(assert (mem01 restrict yes))
+	)
+	(if (eq ?hx "yes") then
+
+		(assert (mem01 hx yes))
+	)
+	(if (eq ?sd "yes") then
+
+		(assert (mem01 sdram yes))
+	)
+	(if (eq ?ed "yes") then
+
+		(assert (mem01 edo yes))
+	)
+	(if (eq ?diff "yes") then
+
+		(assert (mem01 diffmtype yes))
+	)
+	(if (eq ?spec "yes") then
+
+		(assert (mem01 specbios yes))
+	)
+	(if (eq ?mbp "yes") then
+
+		(assert (mem01 mboard yes))
+	)
+	(if (eq ?m "yes") then
+
+		(assert (mem01 metal yes))
+	)
+	
+)
+
+(defrule memparityrecommend
+	(memparityproblems (err_boot ?boot)(err_bios_boot ?biosboot)(it5h_mboard ?it5h)(ecc_enabled ?ecc)(err_addr_same ?addr)(addnew_hardware ?addhd)(chkparity_disabled ?disabled))
+=>
+	(if (eq ?boot "yes") then
+
+		(assert (mem02 errboot yes))	
+
+	) 
+	(if (eq ?biosboot "yes") then
+
+		(assert (mem02 errbios yes))
+
+	)
+	(if (eq ?it5h "yes") then
+		
+		(assert (mem02 it5h yes))
+
+	)
+	(if (eq ?ecc "yes") then
+		
+		(assert (mem02 ecc yes))
+
+	)
+	(if (eq ?addr "yes") then
+		
+		(assert (mem02 erraddr yes))
+
+	)
+	(if (eq ?addhd "yes") then
+		
+		(assert (mem02 addnewhd yes))
+
+	)
+	(if (eq ?disabled "yes") then
+		
+		(assert (mem02 paritydisabled yes))
+
+	)
+	(if (eq ?disabled "no") then
+		
+		(assert (mem02 parityenabled yes))
+
+	)
+)
+
+(defrule memnotrecrecommend
+	(memnotrecproblems(bootup ?boot)(not_all_rec ?notall))
+=>
+	(if (eq ?boot "yes") then
+
+		(assert (mem03 bootup yes))
+
+	)
+	(if (eq ?notall "yes") then
+		
+		(assert (mem03 notallrec yes))
+
+	)
+	
+)
+
+(defrule memoutrecommend
+	(memoutproblems (run_prog ?prog)(outmem_win ?win))
+=>
+	(if (eq ?prog "yes") then
+
+		(assert (mem04 runprog yes))	
+
+	) 
+	(if (eq ?win "yes") then
+
+		(assert (mem04 win yes))
+
+	)
+)
+
+(defrule memperformancerecommend
+	(memperformanceproblems (add_noimprov ?noimprov)(add_worse ?worse)(over256 ?o)(use_slow ?slow)(intel430hx ?hx))
+=>
+	(if (eq ?noimprov "yes") then
+
+		(assert (mem05 noimprov yes))	
+
+	) 
+	(if (eq ?worse "yes") then
+
+		(assert (mem05 worse yes))
+
+	)
+	(if (eq ?o "yes") then
+		
+		(assert (mem05 more256 yes))
+
+	)
+	(if (eq ?slow "yes") then
+		
+		(assert (mem05 slow yes))
+
+	)
+	(if (eq ?hx "yes") then
+		
+		(assert (mem05 hx yes))
+
+	)
+	
+)
+
+(defrule poweronrule1
+	(poweron "yes")
+=>
+	(assert (psup0101 livescreen))
+)
+
+(defrule poweronrule2
+	(poweron "no")
+=>
+	(assert (psup0201 pwrgood))
+)
+
+(defrule livescreenrule
+	(livescreen "yes")
+=>
+	(assert (psup0102 bootsectry))
+)
+
+(defrule livescreenrule2
+	(livescreen "no")
+=>
+	(assert (psup0206 videofail))
+)
+
+(defrule boottryrule
+	(boottry "yes")
+=>
+	(assert (psup0207 pwronsignal))
+)
+
+(defrule boottryrule2
+	(boottry "no")
+=>
+	(assert (psup0103 beeps))
+)
+
+(defrule beepsrule
+	(beeps "yes")
+=>
+	(assert (psup0208 mboardfail))
+)
+
+(defrule beepsrule2
+	(beeps "no")
+=>
+	(assert (psup0104 newhdw))
+)
+(defrule newhdwrule
+	(newhdw "yes")
+=>
+	(assert (psup0209 removeadd))
+)
+
+(defrule newhdwrule2
+	(newhdw "no")
+=>
+	(assert (psup0105 drvspin))
+)
+
+(defrule drvspinrule
+	(drvspin "yes")
+=>
+	(assert (psup0107 badadap))
+)
+
+(defrule drvspinrule2
+	(drvspin "no")
+=>
+	(assert (psup0106 spinlead))
+)
+
+(defrule spinleadrule
+	(spinlead "yes")
+=>
+	(assert (psup0211 deflead))
+)
+
+(defrule spinleadrule2
+	(spinlead "no")
+=>
+	(assert (psup0210 testpc))
+)
+
+(defrule badadapterrule
+	(badadapter "yes")
+=>
+	(assert (psup0212 stripdown))
+)
+
+(defrule badadapterrule2
+	(badadapter "no")
+=>
+	(assert (psup0108 pwrmboard))
+)
+
+(defrule pwronbenchrule
+	(bench "yes")
+=>
+	(assert (psup0213 shortcircuit))
+)
+
+(defrule pwronbenchrule2
+	(bench "no")
+=>
+	(assert (psup0214 replace))
+)
+
+(defrule pwrgoodrule
+	(pwrgood "yes")
+=>
+	(assert (psup0202 voltset))
+)
+
+(defrule pwrgoodrule2
+	(pwrgood "no")
+=>
+	(assert (psup0215 liveoutlet))
+)
+
+(defrule voltsetrule
+	(voltset "yes")
+=>
+	(assert (psup0203 mboardlead))
+)
+
+(defrule voltsetrule2
+	(voltset "no")
+=>
+	(assert (psup0216 selvolt))
+)
+
+(defrule mboardleadrule
+	(mboardlead "yes")
+=>
+	(assert (psup0204 switchfail))
+)
+
+(defrule mboardleadrule2
+	(mboardlead "no")
+=>
+	(assert (psup0217 connlead))
+)
+(defrule switchfailrule
+	(switchfail "yes")
+=>
+	(assert (psup0218 subswitch))
+)
+
+(defrule switchfailrule2
+	(switchfail "no")
+=>
+	(assert (psup0205 conncorrect))
+)
+(defrule concorrectrule
+	(conncorrect "yes")
+=>
+	(assert (psup0105 drvspin))
+)
+
+(defrule concorrectrule2
+	(conncorrect "no")
+=>
+	(assert (psup0219 remakeconn))
+)
+
