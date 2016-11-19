@@ -14,7 +14,7 @@ that you have downloaded the following files:
 <h3>Installing WAMP</h3>
 Firstly, install the WAMP server on a computer running Windows by simply
 running the wamp5_1.3.1 installation file. This will install the Apache 1.3 web
-server, the MySQL DBMS, and PHP 5 on your Windows machine.
+server, the MySQL DBMS, and PHP 5 on your Windows machine. Also, ensure that you configure PHP to allow URL includes (i.e. allow_url_include=On in the php.ini file). 
 Once you have finished installing WAMP, copy the PCDOC folder to the www
 subdirectory of your wamp folder on your computer (i.e. wamp/www).
 
@@ -47,8 +47,7 @@ You can check this by using the config.php in the WAMP folder, but don’t worry
 I think it is set that way by default.).
 
 Once you have created the pcdoc database, DO NOT CREATE ANY TABLES
-YET! I will tell you how to do that. Open the pcdocbckup20080514.sql file given
-to you on the CD, and copy its entire contents (i.e. Select All, then Copy), and
+YET! I will tell you how to do that. Open the pcdocbckup20080514.sql file and copy its entire contents (i.e. Select All, then Copy), and
 paste it under the section labeled SQL in phpMyAdmin (this is the section that
 allows you to run SQL queries), then run the queries (i.e. Click “Go”).
 
